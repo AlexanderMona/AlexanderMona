@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-🌱 I’m currently learning how to use GitHub and kickstart my career in Business Analytics and coding!
+🌱 I’m currently using GitHub as a platform to establish my coding portfolio and various projects in Business Analytics!
 
 
-⚡ Fun fact: I am an aspiring musician and am currently working on an EP with my friend — I hope it will come out around this summer!
+⚡ Fun fact: I am an aspiring musician who plays in the Iowa City area with my band. I am also independently working on an EP in my free time and hope it releases soon!
